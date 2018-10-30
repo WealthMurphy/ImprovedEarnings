@@ -102,6 +102,8 @@ Wolfpack
 
 Crypto Addicts Binance
 
+Insider Call (Guaranteed Profit)
+
 Vip crypto zone
 
 VIP Cryptocurrency Signals - TomProTrader
@@ -127,11 +129,10 @@ Cryptocurrent
 
 
 ***Gold Margin***
+Bitmex VIP Signals
 
 Crypto Addicts Bitmex
 
 Vip cryptocurrency scalping
 
 VIP Bitmex signals
-
-Bitmex VIP Signals
