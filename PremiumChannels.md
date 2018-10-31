@@ -124,7 +124,7 @@ Bitcoin Profit Lab
 
 Until1mil + ChartVamp
 
-CryptoHub
+CryptoUB
 
 Cryptocurrent
 
