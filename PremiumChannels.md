@@ -70,6 +70,8 @@ The Dogpound
 
 The Cryptomist
 
+Trading Crypto Coach
+
 Trading crypto guide VIP
 
 Whales Crypto
