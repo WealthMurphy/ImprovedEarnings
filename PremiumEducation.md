@@ -18,7 +18,7 @@ Greg Capra - Pristine Stock Trading Method
 
 Bitcoin Trading 101
 
-
+[Udemy] Cryptocurrency Complete Trading and Investing
 
 
 
@@ -30,3 +30,4 @@ HighAltitude education material
 
 Crypto Picasso - Elliot Wave & Market Psychology Course
 
+[Udemy] The Foundation Of Technical Analysis - The Dow Theory
