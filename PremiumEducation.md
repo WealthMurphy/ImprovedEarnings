@@ -20,6 +20,7 @@ Bitcoin Trading 101
 
 [Udemy] Cryptocurrency Complete Trading and Investing
 
+Fibs Don't Lie + Advanced extension
 
 
 ***Gold***
