@@ -8,7 +8,7 @@ PAID TRADING (DZ871)
 
 Edward Morra
 
-Özel clup 1.0 pravete
+Özel clup 1.0 private
 
 Premium Signals
 
@@ -44,8 +44,6 @@ Crypto Empire Signal
 
 CryptoMedicas
 
-CryptoRand
-
 Crypto Venice
 
 Crypto Signals Premium Club
@@ -59,8 +57,6 @@ KRS
 Palm Beach Condfidential (reports)
 
 Palm Beach Vip channel
-
-Palm Venice Beach
 
 Raticoin
 
