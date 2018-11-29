@@ -82,9 +82,13 @@ Bitmex Lifestyle
 
 Bravado Margin
 
+Crypto Kirby
+
+MarginWhales
+
 Maxgains
 
-Scalptech
+Paid Advisory
 
 SwingTrades
 
