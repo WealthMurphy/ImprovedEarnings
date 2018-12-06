@@ -32,19 +32,15 @@ Bitcoin Bravado
 
 Bitcoin Syndicate
 
-Bitmex Binance Paid Channel
-
 Coin trading Premium
+
+Credible Crypto
 
 CryptoBirb
 
 CryptoCoins
 
-Crypto Empire Signal
-
 CryptoMedicas
-
-Crypto Venice
 
 Crypto Signals Premium Club
 
@@ -56,11 +52,11 @@ KRS
 
 Palm Beach Condfidential (reports)
 
-Palm Beach Vip channel
-
 Raticoin
 
 Signals Profits Vip
+
+Skyrock
 
 The Dogpound
 
@@ -80,9 +76,9 @@ Wolfpack
 
 Bitmex Lifestyle
 
-Bravado Margin
-
 Crypto Kirby
+
+Erago
 
 MarginWhales
 
@@ -126,12 +122,8 @@ Until1mil + ChartVamp
 
 CryptoUB
 
-Cryptocurrent
-
-
 
 ***Gold Margin***
-Bitmex VIP Signals
 
 Crypto Addicts Bitmex
 
