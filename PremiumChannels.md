@@ -10,11 +10,8 @@ Edward Morra
 
 Özel clup 1.0 private
 
-Premium Signals
 
 Private Club 1.0™
-
-VIP trading signals™
 
 📈VIP Channel "BINANCE , BITTREX and BitMex "📈
 
@@ -44,11 +41,15 @@ CryptoMedicas
 
 Crypto Signals Premium Club
 
+FatPig
+
 Inventas
 
 Golden preium signals
 
 KRS
+
+Otsu
 
 Palm Beach Condfidential (reports)
 
@@ -117,8 +118,6 @@ Kia Crypto
 Trooper + Chase
 
 Bitcoin Profit Lab
-
-Until1mil + ChartVamp
 
 CryptoUB
 
