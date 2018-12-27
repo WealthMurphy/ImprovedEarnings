@@ -29,6 +29,8 @@ Bitcoin Bravado
 
 Bitcoin Syndicate
 
+CCInsider
+
 Coin trading Premium
 
 Credible Crypto
@@ -102,6 +104,12 @@ Wolfpack
 Crypto Addicts Binance
 
 Insider Call (Guaranteed Profit)
+
+Monkey King
+
+Oriental Whales
+
+Slime Calls
 
 Vip crypto zone
 
