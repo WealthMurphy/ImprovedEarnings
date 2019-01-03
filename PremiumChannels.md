@@ -31,6 +31,8 @@ Bitcoin Syndicate
 
 CCInsider
 
+Coins Coach
+
 Coin trading Premium
 
 Credible Crypto
@@ -101,6 +103,8 @@ Wolfpack
 
 ***Gold***
 
+Arte
+
 Crypto Addicts Binance
 
 Insider Call (Guaranteed Profit)
@@ -132,7 +136,17 @@ CryptoUB
 
 ***Gold Margin***
 
+Bitmex Machine
+
+Bitmex Saviour
+
+Bitmex Wizard
+
 Crypto Addicts Bitmex
+
+CryptoBullet
+
+Jeekis
 
 Vip cryptocurrency scalping
 
