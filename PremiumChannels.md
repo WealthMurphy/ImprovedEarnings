@@ -6,8 +6,6 @@ Dynamic VIP Records
 
 PAID TRADING (DZ871)
 
-Edward Morra
-
 Özel clup 1.0 private
 
 
@@ -25,8 +23,6 @@ Alt Report Masters
 
 Best Premium Signals
 
-Bitcoin Bravado
-
 Bitcoin Syndicate
 
 CCInsider
@@ -41,7 +37,7 @@ CryptoBirb
 
 CryptoCoins
 
-CryptoMedicas
+Cryptomist
 
 Crypto Signals Premium Club
 
@@ -49,23 +45,13 @@ FatPig
 
 Inventas
 
-Golden preium signals
-
 KRS
 
 Otsu
 
 Palm Beach Condfidential (reports)
 
-Raticoin
-
-Signals Profits Vip
-
 Skyrock
-
-The Dogpound
-
-The Cryptomist
 
 Trading Crypto Coach
 
@@ -79,19 +65,13 @@ Wolfpack
 
 ***Silver Margin***
 
-Bitmex Lifestyle
-
 Crypto Kirby
 
 Erago
 
-MarginWhales
-
 Maxgains
 
 Paid Advisory
-
-SwingTrades
 
 Yo! Crypto
 
@@ -103,9 +83,9 @@ Wolfpack
 
 ***Gold***
 
-Arte
-
 Crypto Addicts Binance
+
+Crypto Trader
 
 Insider Call (Guaranteed Profit)
 
@@ -119,19 +99,15 @@ Vip crypto zone
 
 VIP Cryptocurrency Signals - TomProTrader
 
-HighAltitude - Dalin Anderson
-
 CryptoPicasso
-
-Crypto Choe - Eric Choe
 
 Kia Crypto
 
-Trooper + Chase
-
 Bitcoin Profit Lab
 
-CryptoUB
+CryptoCurrently
+
+DogPound
 
 
 ***Gold Margin***
@@ -140,14 +116,12 @@ Bitmex Machine
 
 Bitmex Saviour
 
-Bitmex Wizard
-
 Crypto Addicts Bitmex
 
 CryptoBullet
 
 Jeekis
 
-Vip cryptocurrency scalping
+KillMex
 
 VIP Bitmex signals
