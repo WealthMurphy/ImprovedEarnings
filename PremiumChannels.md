@@ -8,7 +8,6 @@ PAID TRADING (DZ871)
 
 Özel clup 1.0 private
 
-
 Private Club 1.0™
 
 📈VIP Channel "BINANCE , BITTREX and BitMex "📈
@@ -31,13 +30,11 @@ Coins Coach
 
 Coin trading Premium
 
-Credible Crypto
-
 CryptoBirb
 
 CryptoCoins
 
-Cryptomist
+CryptoMedics
 
 Crypto Signals Premium Club
 
